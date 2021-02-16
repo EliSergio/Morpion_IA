@@ -9,7 +9,7 @@ bug::: bot incontrôlable
 
 si vous avez envie de me parler ou vous voulez comprendre comment j'ai fait ce jeu. 
 
-Contactez-moi sur Facebook: Franklin hyriol
+Contactez-moi sur Facebook: Eli Herinirina
 
     ___
    //_\\_
